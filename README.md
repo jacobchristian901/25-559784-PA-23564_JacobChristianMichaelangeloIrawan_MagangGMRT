@@ -1,1 +1,2 @@
-# 25-559784-PA-23564_JacobChristianMichaelangeloIrawan_MagangGMRT
+NIM: 25/559784/PA/23564
+Nama: Jacob Christian Michaelangelo Irawan
